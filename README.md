@@ -1,2 +1,2 @@
 # fzdi
-https://Instagramm.com
+https://fadi.com
