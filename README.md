@@ -1,2 +1,2 @@
 # fzdi
-https://Instagramm.com/svn/
+https://Instagramm.com
